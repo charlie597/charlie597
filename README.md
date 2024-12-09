@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @charlie597
+- 👀 I’m interested in furbies, fijit friends, technology, hacking toys
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on absoltely nothing!
+- 📫 How to reach me: ouija board
+- 😄 Pronouns: she/her/they
+- ⚡ NOT-SO Fun facts: 1. i had a tga when i was a baby 2. i had a fijit friend serafina but i skinned it and it killed itself so now i have a broken fijit friend
+- ⚡ Actual fun facts: I have a 2017 teddy ruxpin coming :D, I have a discord friend named the collector and i play minecraft with him sometimes :3
